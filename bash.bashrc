@@ -1,9 +1,9 @@
 
 
-echo "youtube : Din-zUgex95"
+echo "youtube : Bayu Pranatv"
 
 
 
 
-      echo "     GAK SUKA   "
-      echo "  TERSERAH GW ASUUU  "
+      echo "     SUSUKNTLMANIS   "
+      echo "   SK69  "
